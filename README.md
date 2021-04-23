@@ -1,1 +1,1 @@
-# dataming-in-digiKala
+# dataminig-in-digiKala
